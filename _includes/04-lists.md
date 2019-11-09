@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+* 姓名：赖美云
+* 生日：1998-07-07
+* 星座：巨蟹座
