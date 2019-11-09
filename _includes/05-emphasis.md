@@ -1,1 +1,3 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+**创造101**参赛选手
+**火箭少女101**组合成员
+粉丝昵称-*小面包*
