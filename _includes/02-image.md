@@ -1,1 +1,1 @@
-![赖美云](https://r.sinaimg.cn/large/article/93e463b3f58f3eaa4f0118a5a0a6bfa5)
+![赖美云](http://www.zhihetv.com/uploads/news/2019-04-30/5cc7e40270905.jpeg)
